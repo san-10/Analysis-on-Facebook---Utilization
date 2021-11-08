@@ -1,4 +1,4 @@
-# Analysis-on-Facebook---Utilization
+# Analysis-on-Facebook--Utilization
 
 
 Purposes of Facebook usage include social relations, work activities and daily activities. Facebook educational usage includes communication, collaboration and material sharing. Collaboration through academic groups is the best form of Facebook educational usage. A "face book" is a student directory featuring photos and personal information.
